@@ -7,10 +7,11 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/UnfilteredBytes](https://github.com/UnfilteredBytes)
 
-- 📫 How to reach me **p1xelten902@gmail.com**
+- 📫 How to reach me **p1xelten902@gmail.com, or my discord user: p1xel_ten**
 
-- ⚡ Fun fact **I'm a student irl, so don't expect me to be online much. School's nothing to joke about!**
+- ⚡ Fun fact  **I'm a student irl, so don't expect me to be online much. School's nothing to joke about!**
 
-<h3 align="left">Connect with me via Email or Discord user posted on my Social Accounts!</h3>
+<h3 align="left">Connect with me:</h3>
 <p align="left">
+<a href="https://discord.gg/1163604913968914462" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="1163604913968914462" height="30" width="40" /></a>
 </p>
