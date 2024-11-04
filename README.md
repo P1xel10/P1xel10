@@ -11,6 +11,6 @@
 
 - ⚡ Fun fact **I'm a student irl, so don't expect me to be online much. School's nothing to joke about!**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me via Email or Discord user posted on my Social Accounts!</h3>
 <p align="left">
 </p>
