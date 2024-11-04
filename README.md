@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **p1xelten902@gmail.com**
 
-- ⚡ Fun fact **I'm a student irl**
+- ⚡ Fun fact **I'm a student irl, so don't expect me to be online much. School's nothing to joke about!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
